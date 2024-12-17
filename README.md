@@ -1,1 +1,1 @@
-A curious hacker who is passionate about software, blockchain, innovation, entrepreneurship and leadership. Experienced in product management, team building, backend web development and architecture, DevOps, IoT and iOS apps. Interested in making everything more efficient, autonomous and smart. Also loves to play and record some blues rock.
+A curious hacker who is passionate about software and entrepreneurship. Interested in making everything more efficient, autonomous and smart.
